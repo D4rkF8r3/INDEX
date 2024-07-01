@@ -1,3 +1,0 @@
-# INDEX
-
-Pagina web Prueba
